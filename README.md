@@ -1,1 +1,1 @@
-# edunautika-kritzeleien
+Bei der [edunautika](https://edunautika.de) haben wir am 19. April 2024 das [kollaborative edunautika RIESENSPIEL](https://ebildungslabor.de/blog/stationenlernen-learning-circles-spielerei-ein-cooles-lernformat-fuer-selbstbestimmtes-kollaboratives-lernen/) gespielt. Eine Challenge war es, Bilder, Symbole und Icons passend zur Veranstaltung zu kritzeln. Hier sind die Ergebnisse. 
